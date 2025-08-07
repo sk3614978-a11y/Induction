@@ -39,7 +39,7 @@ Goal setting with clarity of purpose,Self-awareness in relation to society and s
 The session emphasized the importance of growing as compassionate, responsible professionals—integrating technical skills with ethical values.Together, these sessions offered a meaningful perspective on becoming not just engineers, but conscientious contributors to society.
 
 # Day 4
-## Humans Values and Club activities.
+## Human Values and Club activities.
 
 Dr. Priya Darshni delivered an insightful lecture on “Universal Human Values”, highlighting the importance of self-awareness, empathy, and ethical living. She discussed how clarity in thoughts, emotional balance, and meaningful relationships contribute to personal growth. Through real-life examples and interactive discussions, students were encouraged to lead a value-driven and purpose-oriented life. The session helped them reflect on their roles as responsible individuals in both society and their academic journey.
 
